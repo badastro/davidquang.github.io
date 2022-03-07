@@ -1,2 +1,2 @@
 # davidquang.github.io
- https://www.davidquang.com/
+https://www.davidquang.com/
